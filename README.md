@@ -1,2 +1,2 @@
 # big-band-herkenrath
-Die Website des Gynasiums Herkenrath
+Die Website der Big Band des Gymasiums Herkenrath
